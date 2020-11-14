@@ -1,3 +1,3 @@
 Use JEI
 
-[Full guide](https://bit.ly/3ly0A6D)
+[Get yharon'ed lol](https://youtu.be/5GcPA3C0QeI)
