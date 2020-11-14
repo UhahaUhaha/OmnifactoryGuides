@@ -1,2 +1,2 @@
 Use JEI
-[Full guide}(https://bit.ly/36F29JI)
+[Full guide](https://bit.ly/36F29JI)
